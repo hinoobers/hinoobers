@@ -1,2 +1,2 @@
-loser who doesnt know how to code
+smart person who knows how to code
 << --                       -- >>
